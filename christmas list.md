@@ -19,7 +19,6 @@
 - [Shoe Tree](https://www.woodlore.com/shoe-trees-inserts/)
 - [Mini Projector](https://www.amazon.ca/dp/B08Z7FSNX9)
 - [Tile Trackers](https://www.amazon.ca/dp/B08BNVQDWT/ref=cm_gf_aajh_iaad_d_p0_e0_qd0_LLBKcgLUZIhtGov1kaxs)
-- Beer Glasses
 
 ### Desktop Key Light
 
