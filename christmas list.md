@@ -30,8 +30,8 @@
 
 
 ### Themes
-Nature
-Mushrooms
-Birds corvids specifically
-Foxes
-Capybaras
+- Nature
+- Mushrooms
+- Birds corvids specifically
+- Foxes
+- Capybaras
