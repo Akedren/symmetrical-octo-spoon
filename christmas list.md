@@ -23,6 +23,7 @@
 - [Chopping Board](https://www.josephjoseph.com/products/chop2pot-chopping-board-set-blue)
 - [Chopping Mats](https://www.josephjoseph.com/products/pop-chopping-board-set-blue)
 - [Chopping Block](https://www.josephjoseph.com/products/cut-carve-plus-multi-function-chopping-board-black)
+- [Electric Blanket](https://www.amazon.ca/EHEYCIGA-Heated-Blanket-Electric-Throw/dp/B0B48GGQKV)
 
 ### Desktop Key Light
 
