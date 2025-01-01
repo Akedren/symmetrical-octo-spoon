@@ -6,8 +6,6 @@
 - [Wireless Router](https://www.memoryexpress.com/Products/MX00122388)
 - [Slide Belts - Classic Black](https://slidebelts.com/en-ca/collections/belts/products/classic-black-belt)
 - [Slide Belts - Mocha Brown Belt](https://slidebelts.com/en-ca/collections/belts/products/mocha-brown-belt)
-- [Ridge - KeyCase - Carbon Fiber](https://ridge.com/products/carbon-keycase)
-- [Samsung Galaxy Watch](https://www.samsung.com/ca/watches/galaxy-watch/galaxy-watch7-44mm-green-bluetooth-sm-l310nzgaxac/)
 
 ## General Ideas - something similar
 
